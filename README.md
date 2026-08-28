@@ -1,0 +1,1 @@
+# LPDG-Industry-Solution-Challenge-2026
